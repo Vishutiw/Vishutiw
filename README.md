@@ -1,4 +1,4 @@
-about . htmal- 👋 Hi, I’m @Vishutiw
+about . htmal- 👋 Hi, I’m @Vishutiwari
 - 👀 I’m interested in ... instagram 
 - 🌱 I’m currently learning ...Msc botani 
 - 💞️ I’m looking to collaborate on ... cute
